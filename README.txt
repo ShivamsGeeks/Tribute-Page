@@ -6,4 +6,4 @@ Github :
 https://github.com/ShivamsGeeks/
 
 Instagram :
-https://instagram.com/@shivvm
+https://instagram.com/shivvm
